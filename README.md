@@ -1,7 +1,7 @@
 # 👋🏽 Hi there! I'm Val
 
 🎓 5th-semester student in Information Technologies in Organizations  
-🌍 Living and learning in Veracruz, Mexico  
+🌍 Living and learning in Veracruz, México  
 💡 Passionate about Web3, blockchain, and front-end development  
 
 ## 🚀 Who am I?  

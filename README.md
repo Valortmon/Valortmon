@@ -22,16 +22,13 @@ I’m Valeria, a tech enthusiast exploring how technology can make organizations
 
 ## 🦌 A little about me  
 
-☕ Coffee lover  
-🍫 Chocolate enthusiast  
+☕ Coffee lover   
 🎶 R&B Music always on repeat  
-🥥 Obsessed with the coconut scent  
 👩🏽‍🦱 Passionate about curly hair care  
-🌐 Exploring the Web3 space  
-🤸🏽‍♀️ Stretching for flexibility and balance  
+🌐 Exploring the Web3 space   
 🐾 Adoring my kitten Ploozza  
 
 ## 📬 Let’s connect!  
 
-X: [@vacxxhe](https://twitter.com/vaccxhe)  
+X: [@vale_om](https://twitter.com/vale_om)  
 Email: [vortmon@gmail.com](mailto:vortmon@gmail.com)  
